@@ -1,4 +1,5 @@
-### Boas, dá lá um followzito pls
+### Boas, dá lá um followzito pls <3
+## Rumo aos 50 followers 
 ## https://www.twitch.tv/sharppeanutttt
 
 <!--
