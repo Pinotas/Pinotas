@@ -1,6 +1,6 @@
 # Hi im currently learning how to become a developer
 
-On my free time i like to stream on twitch
+On my free time I like to stream on twitch
 I would be very grateful if u could drop a follow <3
 
 <!--
