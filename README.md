@@ -1,6 +1,7 @@
-# Boas, dá lá um followzito pls <3
-## Rumo aos 50 followers 
-## https://www.twitch.tv/sharppeanutttt
+# Hi im currently learning how to become a developer
+
+##On my free time i like to stream on twitch
+###I would be very grateful if u could drop a follow <3
 
 <!--
 **Pinotas/Pinotas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
