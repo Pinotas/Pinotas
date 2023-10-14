@@ -2,7 +2,7 @@
 
 On my free time I like to stream on twitch
 I would be very grateful if u could drop a follow <3
-###https://www.twitch.tv/sharppeanutttt
+https://www.twitch.tv/sharppeanutttt
 
 <!--
 **Pinotas/Pinotas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
