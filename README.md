@@ -5,7 +5,9 @@ On my free time I like to stream on twitch
 I would be very grateful if u could drop a follow <3
 https://www.twitch.tv/sharppeanutttt
 
-![duckgif](https://github.com/Pinotas/Pinotas/assets/146479339/8055416d-ebda-4f01-a020-20561d7976ab)
+
+![Duck spin](https://github.com/Pinotas/Pinotas/assets/146479339/4052c91b-78ea-484c-810d-fb3c05d26b27.gif)
+
 
 ## 🦆 I´m addicted to ducks
 ## 🌱 I'm currently focused on mastering:
