@@ -1,16 +1,11 @@
 ### Hey there! 👋 I'm André Alves, a passionate student on the exciting journey to becoming a full-stack web developer.
 
 
-On my free time I like to stream on twitch
-I would be very grateful if u could drop a follow <3
-https://www.twitch.tv/sharppeanutttt
-
-
-## 🦆 I´m addicted to ducks
 ## 🌱 I'm currently focused on mastering:
 - Full-stack development
 - Responsive web design
 - RESTful API development
+- Cybersecurity
 
 ## I'm using the following technologies and tools:
 
